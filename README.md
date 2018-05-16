@@ -1,1 +1,21 @@
 # 17ppp
+http://www.jtjcjj.com
+http://www.chai66.com
+http://www.elssss.com
+http://www.suyazu.com
+http://www.aihezi.net
+http://www.iu1010.com
+http://www.sugo89.com
+http://www.stz666.com
+http://www.adv001.com
+http://www.ip3000.com
+http://www.dou111.com
+http://www.dou222.com
+http://www.dou333.com
+http://www.cc2800.com
+http://www.760600.net
+http://www.wiilin.com
+http://www.wilizi.com
+http://www.the818.net
+http://www.68dxtx.com
+http://www.66yynn.com
